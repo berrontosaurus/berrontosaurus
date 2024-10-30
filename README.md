@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on everyone
 - 📫 How to reach me agn.prdn@gmail.com
 - 😄 Pronouns: Salamaik Basobok Sadonyo!
-- ⚡ Fun fact: I ' am Minangese
+- ⚡ Fun fact: I ' am Minang Pride
 
 <!---
 berrontosaurus/berrontosaurus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
